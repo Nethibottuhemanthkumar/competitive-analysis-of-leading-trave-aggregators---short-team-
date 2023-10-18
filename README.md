@@ -1,1 +1,0 @@
-# competitive-analysis-of-leading-trave-aggregators---short-team-
